@@ -1,2 +1,1 @@
-# -
-实例
+# -i am so happy to enter this commmunity
